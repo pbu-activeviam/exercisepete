@@ -1,1 +1,0 @@
-Today's the day the teddy bears have their picnic.
